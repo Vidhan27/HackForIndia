@@ -30,9 +30,8 @@ We understand that learning can sometimes be confusing, and doubts can arise. Fe
 
 ## Contact Information
 
-If you need to get in touch with us for any reason, whether it's about website issues, content suggestions, or general inquiries, please use the following contact information which is also available on website:
+If you need to get in touch with us for any reason, whether it's about website issues, content suggestions, or general inquiries, please use the following contact information which is also available on our website through contact option 
 
-- **Email:** kunotespedia@gmail.com
 
 We value your feedback and are committed to providing you with the best resources and support for your academic journey. Don't hesitate to reach out to us; we're here to help you succeed!
 
